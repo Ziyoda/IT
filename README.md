@@ -1,5 +1,8 @@
 # IT
 
+BBC News from Ziyoda
+
+Reporting 
 
 Chinese shares have risen on the first day of trade since the lifting of a "circuit breaker" mechanism, which had been introduced to prevent sharp falls.
 
