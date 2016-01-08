@@ -15,3 +15,7 @@ The falls in China have affected markets around the world.
 On Thursday, markets in Europe and the US recorded steep losses after trading in China's stock markets closed within the first 30 minutes, making it China's shortest trading day on record. 
 
 Update #1 
+
+Keep track of everything.
+
+All the best!!
